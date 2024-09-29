@@ -8,7 +8,7 @@ INTRODUCTION ::
 
 ༒︎ Hello!!1! Name's K3i/Kei, or just K for short. Don't use nicknames on me unless you're my friend hh
 
-༒︎ She/ Her/ Any
+༒︎ She/ Her/ Any , INTP , 20/11 BDAY!!
 
 ༒︎ I'm not usually online, and if I do it's either a hit or miss -- I either afk and exist or just hanging out with my friends
 
@@ -21,6 +21,10 @@ INTRODUCTION ::
 ༒︎ I sorta have social anxiety,, so most of the time I don't start conversations,, but might engage in if mentioned
 
 ༒︎ I have a memory of a goldfish so sometimes I might forget names, what we did, what we talked about,, yow
+
+༒︎ I love to draw! Don't be shy to share your artwork, mine could be even worse lmao
+
+༒︎ Do recommend me some breakcore or rock music,, my spotify needs it
 
 ─── ⋆⋅༒︎⋅⋆ ──
 
@@ -68,6 +72,8 @@ FANDOMS ::
 ༒︎ DvN
 
 ༒︎ Omori
+
+༒︎ ULTRAKILL (Just the music,,)
 
 𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟
 ![image](https://github.com/user-attachments/assets/41f995cd-2a34-41ec-bdd1-211dc17b2135)
