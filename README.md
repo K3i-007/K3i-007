@@ -16,6 +16,8 @@ INTRODUCTION ::
 
 ༒︎ I use tone-indicators cuz I can be insensitive sometimes as I do not have social cues,, if I said anything you're uncomfortable with, sorry in advance!!
 
+༒︎ Don't discuss controversies with me, it's really problematic
+
 ༒︎ You can C+H but DNC
 
 ༒︎ I sorta have social anxiety,, so most of the time I don't start conversations,, but might engage in if mentioned
