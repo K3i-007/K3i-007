@@ -57,6 +57,8 @@ FANDOMS ::
 
 ༒︎ FPE
 
+༒︎ STH
+
 ༒︎ Mortal Kombat
 
 ༒︎ Murder Drones
