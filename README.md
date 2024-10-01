@@ -32,7 +32,7 @@ INTRODUCTION ::
 
 FANDOMS ::
 
-┌──❀*̥˚─  ⚔ACTIVE IN⚔   ─❀*̥˚─┐
+┌──❀*̥˚─  ⚔ACTIVE IN⚔   ─❀*̥˚──┐
 
 ༒︎ PHIGHTING!
 
@@ -46,7 +46,7 @@ FANDOMS ::
 
 ༒︎ Object Shows
 
-└───❀*̥˚─  ⚔ACTIVE IN⚔   ─❀*̥˚┘
+└──❀*̥˚─  ⚔ACTIVE IN⚔   ─❀*̥˚──┘
 
 ༒︎ FNF
 
