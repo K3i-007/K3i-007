@@ -36,6 +36,8 @@ FANDOMS ::
 
 ༒︎ PHIGHTING!
 
+༒︎ TR: UD
+
 ༒︎ Regretevator
 
 ༒︎ BlockTales
