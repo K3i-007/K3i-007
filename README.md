@@ -12,6 +12,8 @@ INTRODUCTION ::
 
 ༒︎ I'm not usually online, and if I do it's either a hit or miss -- I either afk and exist or just hanging out with my friends
 
+༒︎ Compliments will be ignored cuz idk how to reply LMFAO (i really dont,,
+
 ༒︎ I'm always in the PHIGHTING! area of PT, you may w2i! Though, sometimes I'm offtab or, again, talking with my friends
 
 ༒︎ I use tone-indicators cuz I can be insensitive sometimes as I do not have social cues,, if I said anything you're uncomfortable with, sorry in advance!!
