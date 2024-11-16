@@ -48,6 +48,8 @@ FANDOMS ::
 
 ༒︎ Detriment
 
+༒︎ ULTRAKILL
+
 ༒︎ Object Shows
 
 └──❀*̥˚─  ⚔ACTIVE IN⚔   ─❀*̥˚──┘
@@ -80,8 +82,6 @@ FANDOMS ::
 ༒︎ DvN
 
 ༒︎ Omori
-
-༒︎ ULTRAKILL (Just the music,,)
 
 𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟 𓆝 𓆟 𓆞 𓆝 𓆟
 ![image](https://github.com/user-attachments/assets/41f995cd-2a34-41ec-bdd1-211dc17b2135)
