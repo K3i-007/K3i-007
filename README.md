@@ -18,7 +18,7 @@ INTRODUCTION ::
 
 ༒︎ I use tone-indicators cuz I can be insensitive sometimes as I do not have social cues,, if I said anything you're uncomfortable with, sorry in advance!!
 
-༒︎ Don't discuss controversies with me, it's really problematic
+༒︎ Basic DNI criteria, I'm less strict though (I consider myself pretty open) but still, basic DNI criteria,,
 
 ༒︎ You can C+H but DNC
 
