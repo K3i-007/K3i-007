@@ -2,22 +2,39 @@
 
 catch all these references ill be your oomf,,
 
+
 BEGONE
+
 like father, like son
+
 HEREBY JUSTICE CONDEMNS YOU DEAD AND I SHALL DO ITS BIDDING, LET THE TERMINATION COMMENCE!!
+
 POGPUNG-GWA HAMKKE SALAJIDA!!!!!
+
 i am fireeee
+
 i gently open the door,,, (iM SO SORRY. SO SORRY.)
+
 IS THAT THE BITE OF 87
+
 GO FIND YOUR SPARK GO FIND YOUR FLAME TEAR DOWN THE DARKNESS OF NULL AND VOID
+
 despite everything, its still you
+
 My Name Is Pace ! I'm Really Scared Right Now !
+
 pax in morte.
+
 guys like us doesn't deserve to have a family
+
 hah! one!
+
 it makes an ass, out of you, and ming!
+
 IT'S SHOWTIME
+
 unfortunately, pain factors are needed for the prime.
+
 MY GREATEST INVENTION
 
 
