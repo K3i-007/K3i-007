@@ -1,7 +1,7 @@
 <img width="2048" height="320" alt="pwlekj" src="https://github.com/user-attachments/assets/5f85a3db-4fed-4c22-a789-a9a93ec4b186" />
 
 
-<img width="736" height="736" alt="Untitled139_20260620002408" src="https://github.com/user-attachments/assets/2d28242e-43f1-46f4-939a-45327d8af2df" />
+<p align="center"><img width="736" height="736" alt="Untitled139_20260620002408" src="https://github.com/user-attachments/assets/2d28242e-43f1-46f4-939a-45327d8af2df" /></p>
 
 
 <p align="center">" Kiddo, remember what Mama told you? You ever find anything you don't like, you can talk to me about it! "</p>
@@ -31,7 +31,7 @@
 <p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
 
 
-<img width="493" height="395" alt="Screenshot 2026-06-20 at 12 42 50 AM" src="https://github.com/user-attachments/assets/09f46a4e-4bcd-4829-b0ad-2288b166c1ec" />
+<p align="center"><img width="493" height="395" alt="Screenshot 2026-06-20 at 12 42 50 AM" src="https://github.com/user-attachments/assets/09f46a4e-4bcd-4829-b0ad-2288b166c1ec" /></p>
 
 
 
