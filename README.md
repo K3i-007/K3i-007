@@ -1,7 +1,8 @@
 <img width="2048" height="320" alt="pwlekj" src="https://github.com/user-attachments/assets/5f85a3db-4fed-4c22-a789-a9a93ec4b186" />
 
 
-<img width="736" height="736" alt="Untitled139_20260620002408" src="https://github.com/user-attachments/assets/be114916-b95a-413a-b86a-19d03262994b" />
+<img width="736" height="736" alt="Untitled139_20260620004700" src="https://github.com/user-attachments/assets/20326b7f-7ec2-463e-bf89-682b0ce869f1" />
+
 
 
 " Kiddo, remember what Mama told you? You ever find anything you don't like, you can talk to me about it! "
