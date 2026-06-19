@@ -1,43 +1,55 @@
-<img width="568" height="544" alt="Screenshot 2026-06-15 at 10 31 05 PM" src="https://github.com/user-attachments/assets/7f59d636-7aca-4f14-a162-fa9353138569" />
-
-catch all these references ill be your oomf,,
+<img width="2048" height="320" alt="pwlekj" src="https://github.com/user-attachments/assets/5f85a3db-4fed-4c22-a789-a9a93ec4b186" />
 
 
-BEGONE
-
-like father, like son
-
-HEREBY JUSTICE CONDEMNS YOU DEAD AND I SHALL DO ITS BIDDING, LET THE TERMINATION COMMENCE!!
-
-POGPUNG-GWA HAMKKE SALAJIDA!!!!!
-
-i am fireeee
-
-i gently open the door,,, (iM SO SORRY. SO SORRY.)
-
-IS THAT THE BITE OF 87
-
-GO FIND YOUR SPARK GO FIND YOUR FLAME TEAR DOWN THE DARKNESS OF NULL AND VOID
-
-despite everything, its still you
-
-My Name Is Pace ! I'm Really Scared Right Now !
-
-pax in morte.
-
-guys like us doesn't deserve to have a family
-
-hah! one!
-
-it makes an ass, out of you, and ming!
-
-IT'S SHOWTIME
-
-unfortunately, pain factors are needed for the prime.
-
-MY GREATEST INVENTION
+<img width="736" height="736" alt="Untitled139_20260620002408" src="https://github.com/user-attachments/assets/be114916-b95a-413a-b86a-19d03262994b" />
 
 
+" Kiddo, remember what Mama told you? You ever find anything you don't like, you can talk to me about it! "
 
-YM FRIEND CODE FOR LIMBUS !! 
-:: G867621489
+
+◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ 
+
+
+⛓️ ˖° ⸝⸝ intro ▼
+
+
+╰ <img width="16" height="16" alt="gglwp2" src="https://github.com/user-attachments/assets/cd6e0638-66d4-448a-ae9d-e189027a3737" /> name(s) ﹕EX0RCUTOR/ K3i
+
+
+✦ age(18) ₊˚ .💥 ༄
+
+
+✦ 𝐩𝐫𝐨𝐧𝐨𝐮𝐧s •₊ he/ him/ any ❥︎ ❏ ❜
+
+
+╰ <img width="20" height="20" alt="pqhplh" src="https://github.com/user-attachments/assets/ca46d27d-fcfa-4cc5-b5ba-4114b9dc23c6" /> hyperfix ⸝ fandoms ﹕Limbus Company, Nullscape, Roblox medias in general, FPE, Flavor Rave
+
+
+. : *others //  ・˙˚ CN/ ENG oka! ⸝ time to unbox !⛓️ 
+
+
+◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ 
+
+
+<img width="371" height="657" alt="Screenshot 2026-06-20 at 12 30 43 AM" src="https://github.com/user-attachments/assets/f4f7ea68-14b8-4dc0-84e3-4cd61b7e8889" /> 
+
+
+" Hah. What's a couple of pointed fingers when this sword of legends... is resting all snug and sweet in my hands? "
+
+
+◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ 
+
+
+╰ DNI(s) ﹕basic DNI, esp politics
+
+
+︵ PONYTOWN ; feel free to c+h | im usually afk + pff tab | barely int, but know that every msg you sent i will see! 
+
+
+╰ limbus ⸝ ﹕G867621489
+
+
+◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ 
+
+
+<img width="2048" height="320" alt="cil9uf" src="https://github.com/user-attachments/assets/fc82390c-07ce-4ae0-95a5-b996eb2fbd5b" />
