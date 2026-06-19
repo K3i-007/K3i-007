@@ -31,7 +31,8 @@
 ◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ 
 
 
-<img width="371" height="657" alt="Screenshot 2026-06-20 at 12 30 43 AM" src="https://github.com/user-attachments/assets/f4f7ea68-14b8-4dc0-84e3-4cd61b7e8889" /> 
+<img width="493" height="395" alt="Screenshot 2026-06-20 at 12 42 50 AM" src="https://github.com/user-attachments/assets/09f46a4e-4bcd-4829-b0ad-2288b166c1ec" />
+
 
 
 " Hah. What's a couple of pointed fingers when this sword of legends... is resting all snug and sweet in my hands? "
