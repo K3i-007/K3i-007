@@ -41,7 +41,7 @@
 ◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ 
 
 
-╰ DNI(s) ﹕basic DNI, esp politics
+╰ <img width="20" height="20" alt="ctgf8v" src="https://github.com/user-attachments/assets/2e253c5f-81de-4b82-89a1-f615de53fbaf" /> DNI(s) ﹕basic DNI, esp politics
 
 
 ︵ PONYTOWN ; feel free to c+h | im usually afk + pff tab | barely int, but know that every msg you sent i will see! 
