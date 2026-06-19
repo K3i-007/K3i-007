@@ -7,50 +7,50 @@
 <p align="center">" Kiddo, remember what Mama told you? You ever find anything you don't like, you can talk to me about it! "</p>
 
 
-◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ 
+<p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
 
 
-⛓️ ˖° ⸝⸝ intro ▼
+<p align="center">⛓️ ˖° ⸝⸝ intro ▼</p>
 
 
-╰ <img width="16" height="16" alt="gglwp2" src="https://github.com/user-attachments/assets/cd6e0638-66d4-448a-ae9d-e189027a3737" /> name(s) ﹕EX0RCUTOR/ K3i
+<p align="center">╰ <img width="16" height="16" alt="gglwp2" src="https://github.com/user-attachments/assets/cd6e0638-66d4-448a-ae9d-e189027a3737" /> name(s) ﹕EX0RCUTOR/ K3i</p>
 
 
-✦ age(18) ₊˚ .💥 ༄
+<p align="center">✦ age(18) ₊˚ .💥 ༄</p>
 
 
-✦ 𝐩𝐫𝐨𝐧𝐨𝐮𝐧s •₊ he/ him/ any ❥︎ ❏ ❜
+<p align="center">✦ 𝐩𝐫𝐨𝐧𝐨𝐮𝐧s •₊ he/ him/ any ❥︎ ❏ ❜</p>
 
 
-╰ <img width="20" height="20" alt="pqhplh" src="https://github.com/user-attachments/assets/ca46d27d-fcfa-4cc5-b5ba-4114b9dc23c6" /> hyperfix ⸝ fandoms ﹕Limbus Company, Nullscape, Roblox medias in general, FPE, Flavor Rave
+<p align="center">╰ <img width="20" height="20" alt="pqhplh" src="https://github.com/user-attachments/assets/ca46d27d-fcfa-4cc5-b5ba-4114b9dc23c6" /> hyperfix ⸝ fandoms ﹕Limbus Company, Nullscape, Roblox medias in general, FPE, Flavor Rave</p>
 
 
-. : *others //  ・˙˚ CN/ ENG oka! ⸝ time to unbox !⛓️ 
+<p align="center">. : *others //  ・˙˚ CN/ ENG oka! ⸝ time to unbox !⛓️ </p>
 
 
-◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ 
+<p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
 
 
 <img width="493" height="395" alt="Screenshot 2026-06-20 at 12 42 50 AM" src="https://github.com/user-attachments/assets/09f46a4e-4bcd-4829-b0ad-2288b166c1ec" />
 
 
 
-" Hah. What's a couple of pointed fingers when this sword of legends... is resting all snug and sweet in my hands? "
+<p align="center">" Hah. What's a couple of pointed fingers when this sword of legends... is resting all snug and sweet in my hands? "</p>
 
 
-◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ 
+<p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
 
 
-╰ <img width="20" height="20" alt="ctgf8v" src="https://github.com/user-attachments/assets/2e253c5f-81de-4b82-89a1-f615de53fbaf" /> DNI(s) ﹕basic DNI, esp politics
+<p align="center">╰ <img width="20" height="20" alt="ctgf8v" src="https://github.com/user-attachments/assets/2e253c5f-81de-4b82-89a1-f615de53fbaf" /> DNI(s) ﹕basic DNI, esp politics</p>
 
 
-︵ PONYTOWN ; feel free to c+h | im usually afk + pff tab | barely int, but know that every msg you sent i will see! 
+<p align="center">︵ PONYTOWN ; feel free to c+h | im usually afk + pff tab | barely int, but know that every msg you sent i will see! </p>
 
 
-╰ limbus ⸝ ﹕G867621489
+<p align="center">╰ limbus ⸝ ﹕G867621489</p>
 
 
-◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ 
+<p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
 
 
 <img width="2048" height="320" alt="cil9uf" src="https://github.com/user-attachments/assets/fc82390c-07ce-4ae0-95a5-b996eb2fbd5b" />
