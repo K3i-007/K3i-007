@@ -61,7 +61,7 @@
 <p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
 
 
-<p align="center"<img width="2028" height="1065" alt="IMG_5483" src="https://github.com/user-attachments/assets/2f5ddc7c-71c6-4ca2-93ca-f97238da3adc" /> </p>
+<p align="center"<img width="2028" height="1065" alt="IMG_5483" src="https://github.com/user-attachments/assets/2f5ddc7c-71c6-4ca2-93ca-f97238da3adc" />
 
 
 <p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
