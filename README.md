@@ -61,4 +61,10 @@
 <p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
 
 
+<p align="center"<img width="2028" height="1065" alt="IMG_5483" src="https://github.com/user-attachments/assets/2f5ddc7c-71c6-4ca2-93ca-f97238da3adc" /> </p>
+
+
+<p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
+
+
 <img width="2048" height="320" alt="cil9uf" src="https://github.com/user-attachments/assets/fc82390c-07ce-4ae0-95a5-b996eb2fbd5b" />
