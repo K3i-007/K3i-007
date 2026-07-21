@@ -1,9 +1,3 @@
-<iframe
-  width="0"
-  height="0"
-  src="https://www.youtube.com/embed/UQ4mwJZN8s?loop=1&playlist=UQ4mwJZN8s"
-  allow="autoplay">
-</iframe>
 
 
 <img width="2048" height="320" alt="pwlekj" src="https://github.com/user-attachments/assets/5f85a3db-4fed-4c22-a789-a9a93ec4b186" />
