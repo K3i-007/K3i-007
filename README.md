@@ -70,4 +70,4 @@
 <p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
 
 
-<img width="2048" height="320" alt="cil9uf" src="https://github.com/user-attachments/assets/fc82390c-07ce-4ae0-95a5-b996eb2fbd5b" />
+<img width="2360" height="1143" alt="IMG_5880" src="https://github.com/user-attachments/assets/b0ab6047-d90a-4ce5-9334-1243e9e48081" />
