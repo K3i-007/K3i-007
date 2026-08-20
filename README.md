@@ -63,11 +63,7 @@
 <p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
 
 
-<img width="2025" height="960" alt="image" src="https://github.com/user-attachments/assets/397b51c4-a2d5-45b3-86d9-76af8a6d120f" />
-
+<img width="2360" height="1143" alt="IMG_5880" src="https://github.com/user-attachments/assets/6905ea81-3f26-463d-a4d8-aaf18ccea046" />
 
 
 <p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
-
-
-<img width="2360" height="1143" alt="IMG_5880" src="https://github.com/user-attachments/assets/b0ab6047-d90a-4ce5-9334-1243e9e48081" />
