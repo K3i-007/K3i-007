@@ -25,7 +25,7 @@
 <p align="center">✦ age(18) ₊˚ .💥 ༄</p>
 
 
-<p align="center">✦ 𝐩𝐫𝐨𝐧𝐨𝐮𝐧s •₊ he/ him/ any ❥︎ ❏ ❜</p>
+<p align="center">✦ 𝐩𝐫𝐨𝐧𝐨𝐮𝐧s •₊ he/ him ❥︎ ❏ ❜</p>
 
 
 <p align="center">╰ <img width="20" height="20" alt="pqhplh" src="https://github.com/user-attachments/assets/ca46d27d-fcfa-4cc5-b5ba-4114b9dc23c6" /> hyperfix ⸝ fandoms ﹕Limbus Company, Nullscape, Roblox medias in general, FPE, Flavor Rave</p>
