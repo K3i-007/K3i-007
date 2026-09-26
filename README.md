@@ -7,10 +7,10 @@
 <p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
 
 
-<p align="center">· · ────── ꒰ঌ·✦ ༒ ✦·໒꒱ ────── · ·</p>
-
-
 <p align="center">" ᴛʀᴀꜱʜ ᴛʜᴀᴛ ᴛɪᴛʟᴇ ꜰᴏʀ ᴍᴀʟᴇᴠᴏʟᴇɴᴄᴇ ᴀɴᴅ ɪᴛ ᴡɪʟʟ ʙᴇ ʏᴏᴜʀ ꜰɪʀꜱᴛ ꜱᴛᴇᴘ ᴛᴏ ʀᴇᴄᴏɢɴɪᴛɪᴏɴ. "</p>
+
+
+<p align="center">· · ────── ꒰ঌ·✦ ༒ ✦·໒꒱ ────── · ·</p>
 
 
 <p align="center"><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/889b567e-bd09-45a8-b3d8-cf94d959ca96" />
