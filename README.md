@@ -10,9 +10,6 @@
 <p align="center">" ᴛʀᴀꜱʜ ᴛʜᴀᴛ ᴛɪᴛʟᴇ ꜰᴏʀ ᴍᴀʟᴇᴠᴏʟᴇɴᴄᴇ ᴀɴᴅ ɪᴛ ᴡɪʟʟ ʙᴇ ʏᴏᴜʀ ꜰɪʀꜱᴛ ꜱᴛᴇᴘ ᴛᴏ ʀᴇᴄᴏɢɴɪᴛɪᴏɴ. "</p>
 
 
-<p align="center">· · ────── ꒰ঌ·✦ ༒ ✦·໒꒱ ────── · ·</p>
-
-
 <p align="center"><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/889b567e-bd09-45a8-b3d8-cf94d959ca96" />
  ˖° ⸝⸝ intro ▼</p>
 
@@ -30,14 +27,13 @@
  hyperfix ⸝ fandoms ﹕Limbus Company, Nullscape, Roblox medias in general, Flavor Rave</p>
 
 
-<p align="center">. : *others //  ・˙˚ CN/ ENG are fine !! ⸝ May my wrath burn bright to tear down your void ! 💥 </p>
+<p align="center">. : *others //  ・˙˚ CN/ ENG are fine !! ⸝ ᴍᴀʏ ᴍʏ ᴡʀᴀᴛʜ ʙᴜʀɴ ʙʀɪɢʜᴛ ᴛᴏ ᴛᴇᴀʀ ᴅᴏᴡɴ ʏᴏᴜʀ ᴠᴏɪᴅ 💥 </p>
 
  ⠀
+<p align="center">· · ────── ꒰ঌ·✦ ༒ ✦·໒꒱ ────── · ·</p>
+ 
 
 <p align="center">" ʏᴏᴜ ᴅᴏ ɴᴏᴛ ᴄᴏᴍᴘᴀʀᴇ ᴍᴏʀᴀʟɪᴛʏ ᴡɪᴛʜ ᴘʀɪᴅᴇ, ɪᴛ'ꜱ ᴀʟʀᴇᴀᴅʏ ʙᴇᴇɴ ᴜꜱᴇᴅ ꜰᴏʀ ᴛʜᴇ ᴇɴᴛʀᴀɴᴄᴇ ꜰᴇᴇ. "</p>
-
-
-<p align="center">· · ────── ꒰ঌ·✦ ༒ ✦·໒꒱ ────── · ·</p>
 
 
 <p align="center">╰ <img width="20" height="20" alt="ctgf8v" src="https://github.com/user-attachments/assets/2e253c5f-81de-4b82-89a1-f615de53fbaf" /> DNI(s) ﹕basic DNI, politics are on thin ice however</p>
