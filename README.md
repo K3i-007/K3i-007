@@ -14,7 +14,7 @@
  ˖° ⸝⸝ intro ▼</p>
 
 
-<p align="center">╰ <img width="16" height="16" alt="gglwp2" src="https://github.com/user-attachments/assets/cd6e0638-66d4-448a-ae9d-e189027a3737" /> 𝖓𝖆𝖒𝖊(𝖘) ﹕EX0RCUTOR/ K3i</p>
+<p align="center">╰ 𝖓𝖆𝖒𝖊(𝖘) ﹕EX0RCUTOR/ K3i</p>
 
 
 <p align="center">✦ age(18) ₊˚ .<img width="20" height="20" alt="27117626" src="https://github.com/user-attachments/assets/1731e3a0-5222-48fc-b093-d8d94933b133" /> ༄</p>
@@ -23,7 +23,7 @@
 <p align="center">✦ 𝐩𝐫𝐨𝐧𝐨𝐮𝐧s •₊ he/ him ❥︎ ❏ ❜</p>
 
 
-<p align="center">╰ <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/0ae36bad-53f6-45b2-9174-a4c95ba6bbf5" />
+<p align="center">╰ <img width="16" height="16" alt="gglwp2" src="https://github.com/user-attachments/assets/cd6e0638-66d4-448a-ae9d-e189027a3737" />
  hyperfix ⸝ fandoms ﹕Limbus Company, Nullscape, Roblox medias in general, Flavor Rave</p>
 
 
