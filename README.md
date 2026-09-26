@@ -1,4 +1,4 @@
-<img width="1726" height="999" alt="Screenshot 2026-09-26 at 7 15 21 PM-Photoroom" src="https://github.com/user-attachments/assets/d5b68cf9-8b3c-4a92-acd5-5eba0a301f82" />
+<p align="center">· · ────── ꒰ঌ·✦ ༒ ✦·໒꒱ ────── · ·</p>
 
 
  <img width="1280" height="1280" alt="Untitled33_20260926192035" src="https://github.com/user-attachments/assets/824bf21c-3b2c-4699-97e6-9e90c574e309" />
@@ -57,4 +57,4 @@
 <p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
 
 
-<img width="1726" height="999" alt="Screenshot 2026-09-26 at 7 15 21 PM-Photoroom" src="https://github.com/user-attachments/assets/80e1e0bb-c322-4265-9499-3ce0b6682bc0" />
+<p align="center">· · ────── ꒰ঌ·✦ ༒ ✦·໒꒱ ────── · ·</p>
