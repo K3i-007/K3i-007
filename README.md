@@ -1,7 +1,7 @@
 <p align="center">· · ────── ꒰ঌ·✦ ༒ ✦·໒꒱ ────── · ·</p>
 
 
- <img width="400" height="1280" alt="Untitled33_20260926192035" src="https://github.com/user-attachments/assets/824bf21c-3b2c-4699-97e6-9e90c574e309" />
+ <img width="400" height="400" alt="Untitled33_20260926192035" src="https://github.com/user-attachments/assets/824bf21c-3b2c-4699-97e6-9e90c574e309" />
 
 
 <p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
