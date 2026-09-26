@@ -58,3 +58,6 @@
 
 
 <p align="center">· · ────── ꒰ঌ·✦ ༒ ✦·໒꒱ ────── · ·</p>
+
+
+<p align="center">ALL ARTWORKS BY @OffFenwick on twt!! PLEASE CHECK THEM OUT THEYRE SO PEAK !!</p>
