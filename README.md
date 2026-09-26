@@ -30,13 +30,13 @@
 <p align="center">. : *others //  ・˙˚ CN/ ENG are fine !! ⸝ May my wrath burn bright to tear down your void ! 💥 </p>
 
 
-<p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
+<p align="center">· · ────── ꒰ঌ·✦ ༒ ✦·໒꒱ ────── · ·</p>
 
 
 <p align="center">" ʏᴏᴜ ᴅᴏ ɴᴏᴛ ᴄᴏᴍᴘᴀʀᴇ ᴍᴏʀᴀʟɪᴛʏ ᴡɪᴛʜ ᴘʀɪᴅᴇ, ɪᴛ'ꜱ ᴀʟʀᴇᴀᴅʏ ʙᴇᴇɴ ᴜꜱᴇᴅ ꜰᴏʀ ᴛʜᴇ ᴇɴᴛʀᴀɴᴄᴇ ꜰᴇᴇ. "</p>
 
 
-<p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
+<p align="center">· · ────── ꒰ঌ·✦ ༒ ✦·໒꒱ ────── · ·</p>
 
 
 <p align="center">╰ <img width="20" height="20" alt="ctgf8v" src="https://github.com/user-attachments/assets/2e253c5f-81de-4b82-89a1-f615de53fbaf" /> DNI(s) ﹕basic DNI, politics are on thin ice however</p>
