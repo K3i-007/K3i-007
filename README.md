@@ -33,9 +33,6 @@
 <p align="center">. : *others //  ・˙˚ CN/ ENG are fine !! ⸝ May my wrath burn bright to tear down your void ! 💥 </p>
 
 
-<p align="center">· · ────── ꒰ঌ·✦ ༒ ✦·໒꒱ ────── · ·</p>
-
-
 <p align="center">" ʏᴏᴜ ᴅᴏ ɴᴏᴛ ᴄᴏᴍᴘᴀʀᴇ ᴍᴏʀᴀʟɪᴛʏ ᴡɪᴛʜ ᴘʀɪᴅᴇ, ɪᴛ'ꜱ ᴀʟʀᴇᴀᴅʏ ʙᴇᴇɴ ᴜꜱᴇᴅ ꜰᴏʀ ᴛʜᴇ ᴇɴᴛʀᴀɴᴄᴇ ꜰᴇᴇ. "</p>
 
 
