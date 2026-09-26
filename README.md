@@ -10,7 +10,7 @@
 <p align="center">" ᴛʀᴀꜱʜ ᴛʜᴀᴛ ᴛɪᴛʟᴇ ꜰᴏʀ ᴍᴀʟᴇᴠᴏʟᴇɴᴄᴇ ᴀɴᴅ ɪᴛ ᴡɪʟʟ ʙᴇ ʏᴏᴜʀ ꜰɪʀꜱᴛ ꜱᴛᴇᴘ ᴛᴏ ʀᴇᴄᴏɢɴɪᴛɪᴏɴ. "</p>
 
 
-<p align="center"><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/889b567e-bd09-45a8-b3d8-cf94d959ca96" />
+<p align="center"><img width="20" height="20" alt="50e1276b" src="https://github.com/user-attachments/assets/7b82bab1-a4a5-4222-ab8c-15cc5370de0b" />
  ˖° ⸝⸝ intro ▼</p>
 
 
