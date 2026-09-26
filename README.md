@@ -4,10 +4,13 @@
  <img width="1280" height="1280" alt="Untitled33_20260926192035" src="https://github.com/user-attachments/assets/824bf21c-3b2c-4699-97e6-9e90c574e309" />
 
 
-<p align="center">" ᴛʀᴀꜱʜ ᴛʜᴀᴛ ᴛɪᴛʟᴇ ꜰᴏʀ ᴍᴀʟᴇᴠᴏʟᴇɴᴄᴇ ᴀɴᴅ ɪᴛ ᴡɪʟʟ ʙᴇ ʏᴏᴜʀ ꜰɪʀꜱᴛ ꜱᴛᴇᴘ ᴛᴏ ʀᴇᴄᴏɢɴɪᴛɪᴏɴ. "</p>
-
-
 <p align="center">◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤◢◤ </p>
+
+
+<p align="center">· · ────── ꒰ঌ·✦ ༒ ✦·໒꒱ ────── · ·</p>
+
+
+<p align="center">" ᴛʀᴀꜱʜ ᴛʜᴀᴛ ᴛɪᴛʟᴇ ꜰᴏʀ ᴍᴀʟᴇᴠᴏʟᴇɴᴄᴇ ᴀɴᴅ ɪᴛ ᴡɪʟʟ ʙᴇ ʏᴏᴜʀ ꜰɪʀꜱᴛ ꜱᴛᴇᴘ ᴛᴏ ʀᴇᴄᴏɢɴɪᴛɪᴏɴ. "</p>
 
 
 <p align="center"><img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/889b567e-bd09-45a8-b3d8-cf94d959ca96" />
