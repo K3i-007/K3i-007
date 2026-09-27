@@ -41,7 +41,7 @@
 <p align="center">╰ <img width="20" height="20" alt="ctgf8v" src="https://github.com/user-attachments/assets/2e253c5f-81de-4b82-89a1-f615de53fbaf" /> DNI(s) ﹕basic DNI, politics are on thin ice however</p>
 
 
-<p align="center">︵ PONYTOWN ; feel free to c+h | im usually afk + pff tab | barely int, but know that every msg you sent i will see! </p>
+<p align="center">︵ PONYTOWN ; c+h is a 50/50 im sorry you gotta gamble | im usually afk + pff tab | barely int, but know that every msg you sent i will see! </p>
 
 
 <p align="center">╰ limbus ⸝ ﹕G867621489</p>
